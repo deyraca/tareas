@@ -4,5 +4,6 @@
 ![image](https://github.com/deyraca/tareas/assets/142963383/2e662f35-b9e9-42c1-9bc1-458255ea6094)
 ![image](https://github.com/deyraca/tareas/assets/142963383/6a7bcac5-ac16-4b8c-9640-ff11feb59f9f)
 ![image](https://github.com/deyraca/tareas/assets/142963383/88fa60b5-8ae9-4559-bff2-11c11f8cdc81)
+![image](https://github.com/deyraca/tareas/assets/142963383/c88cb4ee-b70f-45d5-bbcc-2dd48f32b280)
 
 
