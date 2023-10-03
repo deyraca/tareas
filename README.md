@@ -6,8 +6,10 @@
 ![image](https://github.com/deyraca/tareas/assets/142963383/88fa60b5-8ae9-4559-bff2-11c11f8cdc81)
 ![image](https://github.com/deyraca/tareas/assets/142963383/c88cb4ee-b70f-45d5-bbcc-2dd48f32b280)
 ![image](https://github.com/deyraca/tareas/assets/142963383/6d3f9671-343b-427b-96ad-d2746aad01c2)
-WhatsApp Image 2023-10-02 at 9.11.58 PM.jpeg
-WhatsApp Image 2023-10-02 at 9.11.49 PM.jpeg
+![WhatsApp Image 2023-10-02 at 9 11 49 PM](https://github.com/deyraca/tareas/assets/142963383/850f8353-da80-4b7e-ae88-32212e796595)
+![WhatsApp Image 2023-10-02 at 9 11 58 PM](https://github.com/deyraca/tareas/assets/142963383/983a7ea4-2d64-4a1d-aac7-8cdba22df582)
+
+
 
 
 
